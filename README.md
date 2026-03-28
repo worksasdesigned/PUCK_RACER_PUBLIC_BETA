@@ -1,4 +1,4 @@
-# 🚀 Welcome to the PUCK RACER Public Beta!
+# 🚀 Welcome to the PUCK RACER Beta Test!
 
 Hey there! Thanks for stopping by. If you're looking to bring some serious action, fun, and reaction training to your sports lessons or club, you're in the right place.
 
